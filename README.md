@@ -12,7 +12,7 @@
 🎓 &nbsp;Soy administrador de empresas con inglés B1, actualmente estoy estudiando desarrollo FullStack.\
 💬 &nbsp;Amplio conocimiento en el Retail de canal moderno y tradicional.\
 💬 &nbsp;He asumido roles como Analista de datos, Product Owner, entre otros.\
-✉️ &nbsp;¡uedes enviarme un correo electrónico a juancamilo04291@gmail.com Intentaré responder tan pronto como pueda.\
+✉️ &nbsp;¡Puedes enviarme un mail a juancamilo04291@gmail.com Intentaré responder tan pronto como pueda.
 
 
 
